@@ -55,5 +55,5 @@
 This is a top tier anime movie! :heart:
 This made me :cry:  the whole night
 
-You need to ==must== watch this movie. Because if you don’t, you are missing something in your life.
+You <mark>must</mark> watch this movie. Because if you don’t, you are missing something in your life.
 
